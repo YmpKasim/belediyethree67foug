@@ -1,1 +1,0 @@
-# belediyethree67foug
